@@ -1,0 +1,1 @@
+- 👋 Hi, I’m GRT based in canada, working and learning about Intune and end user management. 
